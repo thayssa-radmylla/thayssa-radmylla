@@ -10,5 +10,5 @@ Tenho vivência em projetos de educação corporativa, seleção e gestão de ta
 
 Atualmente sou **Tech Recruiter** no [Méliuz](https://meliuz.gupy.io/) e posso te conectar a oportunidades **incríveis**!
 
-**[Vamos conversar?]**(https://www.linkedin.com/in/thayssa-radmylla-61b18a153/)
+[Vamos converçar?](https://www.linkedin.com/in/thayssa-radmylla-61b18a153/)
 
